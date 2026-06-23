@@ -103,7 +103,3 @@ Through these projects, I gained hands-on experience in:
 Data Science & Analytics Intern – Future Interns
 
 LinkedIn: www.linkedin.com/in/nithinchandra07
-
-Data Science & Analytics Intern – Future Interns
-
-LinkedIn: www.linkedin.com/in/nithinchandra07
